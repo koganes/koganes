@@ -12,4 +12,4 @@
   </a>
 </p>
 
-hi guys. Im trading rentries ok??? 
+hi guys. Im trading rentries ok??? [here](https://rentry.co/codehacker)
