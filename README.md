@@ -13,3 +13,5 @@
 </p>
 
 hi guys. Im trading rentries ok??? [here](https://rentry.co/codehacker)
+
+my [about me](https://rentry.co/koganed) rentry. Check it out for info!
